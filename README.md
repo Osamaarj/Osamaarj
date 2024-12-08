@@ -170,31 +170,32 @@ https://ok.ru/video/1641498872477
 
 
 بۆق ١
-
+http://ok.ru/video/6493096774384
 بۆق ٢
-
+http://ok.ru/video/6493096774384
 بۆق ٣
-
+http://ok.ru/video/6493125413616
 بۆق ٤
-
+http://ok.ru/video/6493142715120
 بۆق ٥
-
-بۆق ٦
-
+http://ok.ru/video/6493158771440
+بۆق ٦ 
+http://ok.ru/video/6496125389552
 بۆق ٧
-
+http://ok.ru/video/6496154749680
 بۆق ٨
-
+http://ok.ru/video/6496182012656
 بۆق ٩
-
+http://ok.ru/video/6506474834672
 بۆق ١٠
-
+http://ok.ru/video/6506484206320
 بۆق ١١
-
+http://ok.ru/video/6506492726000
 بۆق ١٢
-
+http://ok.ru/video/6506501901040
 بۆق ١٣
-
+http://ok.ru/video/6506510420720
 بۆق ١٤
-http://ok.ru/video/6506582510320
+‏http://ok.ru/video/6506582510320
 بۆق ١٥
+http://ok.ru/video/6510249642736
