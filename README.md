@@ -168,8 +168,26 @@ https://ok.ru/video/1638500534941
 گۆڕانـی خـراپ 76
 https://ok.ru/video/1641498872477
 
-[https://box-1037-f2.vmeas.cloud/xqx2pgypjjokjiqbtezspji5uqglslqbnzqpviravv7lhqxcpkgdbgcxxaeq/liu4ws8h](https://kurdsubtitle.net/movie/34208)
 
-https://video10.videa.hu/static/480p/8.1698768.2193300.1.13.1.1?md5=kAhDTt_etFA6RA8Hw3Q2Ug&expires=1733239393
+بۆق ١
+
+بۆق ٢
+
+بۆق ٣
+
+بۆق ٤
+
+بۆق ٥
+
+بۆق ٦
+
+بۆق ٧
+
+بۆق ٨
+
+بۆق ٩
+
+
+بۆق ١٠
 
 
